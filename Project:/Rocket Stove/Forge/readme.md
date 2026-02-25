@@ -1,0 +1,1 @@
+- [Supercharged RocketStove Mods: Crazy Heat Boost & Forge Conversion](https://youtu.be/yi_7CBsXkoo)
