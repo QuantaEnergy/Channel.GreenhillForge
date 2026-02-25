@@ -1,0 +1,1 @@
+- [DIY Generator Testing: 1.5kW Sustained, 1.8kW Peak Power— Off-Grid Battery Charged!](https://youtu.be/OMxSclMoKXk)
