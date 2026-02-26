@@ -1,0 +1,1 @@
+- [Charcoal-Powered Generator | Charging Off-Grid Battery with Homemade Power](https://youtu.be/vpjBlfd3s4g)
