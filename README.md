@@ -1,7 +1,11 @@
 # Channel.GreenhillForge
 # Home:
-- Site: https://greenhillforge.com
-- Channel: https://m.youtube.com/@GreenhillForge
+## Site: https://greenhillforge.com
+
+## [Contact](https://greenhillforge.com/pages/contact)
+Send us a message or email info@greenhillforge.com
+
+## Channel: https://m.youtube.com/@GreenhillForge
 
 # Links
 Shop
